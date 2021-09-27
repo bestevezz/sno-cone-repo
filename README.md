@@ -1,6 +1,6 @@
 # sno-cone-repo
 I love sno-cones
-The different flavors
-The shaved ice
-It's the best way to cool down &
-One of the best summer treats
+The flavorful differences
+The iced shave
+It's the coolest way to best down &
+One of the treatest summers
